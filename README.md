@@ -3,4 +3,6 @@ keep in mind on using a [Binary Converter](https://www.rapidtables.com/convert/n
  to translate this text.
 ![Adorable kitsune](Fox_spirit.jpg)
 
-[facts about kitsunes](https://www.youtube.com/watch?v=fJFyixOOPmk
+[facts about kitsunes](https://www.youtube.com/watch?v=fJFyixOOPmk)
+
+You could try to find me in other medias but just try
